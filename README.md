@@ -1,10 +1,12 @@
 <div align="center">
 
-<img src="https://i.pinimg.com/474x/2b/1d/fe/2b1dfec19b945a19ac39641278a6a799.jpg" width="550">
+
 
 # ❗HELLO GUYS❗
 
 I make my great return to my account because i need to lock in on shit
+
+<img src="https://i.pinimg.com/474x/2b/1d/fe/2b1dfec19b945a19ac39641278a6a799.jpg" width="550">
 
 ## ⚠️ CAUTION ⚠️
 
