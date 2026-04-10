@@ -1,7 +1,4 @@
 <div align="center">
-
-
-
 # ❗HELLO GUYS❗
 
 I make my great return to my account because i need to lock in on shit
