@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://img1.picmix.com/output/stamp/normal/4/1/4/2/2612414_116e9.gif" width="400">
+<img src="https://img1.picmix.com/output/stamp/normal/4/1/4/2/2612414_116e9.gif" width="800">
 
 # ❗HELLO GUYS❗
 
