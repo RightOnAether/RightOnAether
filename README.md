@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.pinimg.com/originals/c9/43/3c/c9433c679934ab3edc0a288d62981a34.gif" width="800">
+<img src="https://i.pinimg.com/originals/c9/43/3c/c9433c679934ab3edc0a288d62981a34.gif" width="650">
 
 # ❗HELLO GUYS❗
 
