@@ -1,9 +1,3 @@
-<div align="center">
-  
-# ❗HELLO GUYS❗
-
-I make my great return to become chud
-
 ## ⚠️ CAUTION ⚠️
 
 ⬇️⬇️ **Fat fucking chud invasion** ⬇️⬇️
